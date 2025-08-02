@@ -28,4 +28,4 @@ Computer Science Engineer & Independent Theorist
 
 ## 📫 Contact / Connect
 - 📧 Email: dishantapanda7777@gmail.com
-- 🌐 YouTube:[@dishantadiscovery](https://youtube.com/@yourchannel)
+- 🌐 YouTube:https://youtube.com/@dishantadiscovery?feature=shared)
