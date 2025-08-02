@@ -27,5 +27,5 @@ Computer Science Engineer & Independent Theorist
 
 
 ## 📫 Contact / Connect
-- 📧 Email: your_email@example.com
-- 🌐 YouTube: [YourChannelName](https://youtube.com/@yourchannel)
+- 📧 Email: dishantapanda7777@gmail.com
+- 🌐 YouTube:[@dishantadiscovery](https://youtube.com/@yourchannel)
